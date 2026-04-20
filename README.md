@@ -8,7 +8,6 @@
 ⁴ University of Haifa, Faculty of Law, Haifa  
 \* Corresponding author: muhammad.gurchani@ens.psl.eu
 
-*Submitted to Nature*
 
 ---
 
